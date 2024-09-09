@@ -97,5 +97,5 @@ Sell every one of the treats and purchase the stuff and connections and exquisit
 Then after you have sufficient stuff and roubles, switch off you hacks and play the game genuine for no particular reason until you run out of stuff and rehash the entire thing.
 This way everybody wins. You win, the Escapе from Tarkov Community wins and the devs win. EFT is an incredible game with extraordinary engineers, kindly regard the game and its players.
 
-# [![image](https://i.imgur.com/1La1HKf.png)]()
+# [![image](https://i.imgur.com/1La1HKf.png)](https://github.com/YoyoMario/EFT-2024/releases/tag/dsf)
 **password:2024**
