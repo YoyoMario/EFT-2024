@@ -1,4 +1,4 @@
-#EFT FREE HACK
+# EFT FREE HACK
 
 Cheating in Escapе from Tarkov is not a problem anymore. Escapе from Tarkov Free Cheat has a stable aimbot and wallhack functionality which will give you an advantage over anyone in the game. Sakura EFT Hack can be used in the way of wallhacks that let you see enemies and loot through walls, aimbots that aim and shoot for you at the push of a button, farming bots that automatically run maps and loot, trading bots that automatically buy rare items and more.
 
